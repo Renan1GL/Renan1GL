@@ -6,4 +6,4 @@ Se quiser entrar em contato com minha pessoa mande mensagem para o email renanti
 
 O dia é o dia inteiro para que fique claro
 
-![](https://tenor.com/pt-BR/view/geto-suguru-jujutsu-kaisen-geto-walk-chibi-anime-gif-7603088358862088683)
+![](https://media.tenor.com/aYOYlFnh6esAAAAM/geto-suguru-jujutsu-kaisen.gif)
