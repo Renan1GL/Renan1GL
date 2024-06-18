@@ -1,6 +1,6 @@
 *OPA BOM DIA*
 
-Meu nome é Renan, sou aluno da Escola Olga Cury, estou aprendendo a linguagem Java script.
+Meu nome é Renan, estou aprendendo a linguagem Java script.
 
 Se quiser entrar em contato com minha pessoa mande mensagem para o email renantikinho@gmail.com
 
